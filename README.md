@@ -35,30 +35,65 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Pyrgomachia; vel potius, Pygomachia Or, in cleane English, The castle-combat. Performed; by Iames Fe
+
+1. The Combat is thus ranged into
+Files, or Orders.
+
 #####Body#####
 
-1. PROLOGVS.
+1. THE CASTLE-COMBAT.
 
-1. FILE I.
+    _ PROLOGVS.
 
-1. FILE II.
+    _ FILE I.
 
-1. FILE III.
+    _ FILE II.
 
-1. FILE IV.
+    _ FILE III.
 
-1. FILE V.
+    _ FILE IV.
 
-1. FILE VI.
+    _ FILE V.
 
-1. FILE VII.
+    _ FILE VI.
 
-1. FILE VIII.
+    _ FILE VII.
 
-1. FILE IX.
+    _ FILE VIII.
 
-1. Epilogus.
+    _ FILE IX.
+
+    _ Epilogus.
+
+1. To the High-ſpirited, heroick-hearted,
+Stout-ſtomackt, bold-breſted, cruel-couraged:
+Hypſeloglotticall, Rhetorologicall, Archinoeticall;
+Invincible, Victorious, worthy, noble, generous, Sr Iames,
+Grand-poſſeſſor, and Profeſſor, as well Oenopoliall of
+the rareſt, faireſt, deareſt, Pomperkin, Hullock, Mellogodoone,
+Frantiniack, Canary, Muſquedine
+Wines, as Gymnaſiarchicall, of the Martiall
+Science of Defence; Monomachounticall,
+and Polymachounticall
+WOrthy Poeticall Client, I have viewed the Information
+you ſent me: which will ſufficiently
+direct m
+1. A Congratulatory verſe, to the bravely reſolved
+IAMES, the horrid Babby of bloody-handed Bellona
+Arch-Duke of Canary, and great Commander of the
+omnipotent forces of Bacchus, in the infernall
+Region of his well-bung'd, and wellbang'd
+Barrells.
+
+1. To my good Schoole-Maſter, Mr. Iohn Gower,
+and to my good acquaintance, his Book.
+OVr Maſter Iohn GowerHath writ of a Tower,Which lookes much batter'd and broken.Not farre from thoſe
+1. Vpon the Caſtle-Combat.
+THe Printer dreames this Booke will ſell the better;If Caſtle-Schoole doe ſend to him a letter.I am 
+1. A Quaere with a Quare concerning
+Iohn Quis.
+
+1. For the Caſtle Combat.
 
 **Types of content**
 
